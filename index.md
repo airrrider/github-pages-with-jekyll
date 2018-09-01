@@ -1,4 +1,4 @@
-# Welcome to my blog
+# Here it is.
 
 I'm glad you are here. I plan to talk about discomforts and developments.  We all have feelings, aspirations, and motives.  Or maybe recording data was what should be done.  Who knows.
 
